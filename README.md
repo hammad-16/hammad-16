@@ -13,9 +13,9 @@
 
 - 💬 Ask me about **Data Structures and Algorithms, Competitive Programming, Flutter**
 
-- 📫 How to reach me **hammadkidwai1602@gmail.com**
+- 📫 How to reach me: **hammadkidwai1602@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-RJaYFIyk95XyLhIFlcs5D7qoPNyh3Fc/view](https://drive.google.com/file/d/1-RJaYFIyk95XyLhIFlcs5D7qoPNyh3Fc/view)
+- 📄 Have a look at my resume: [https://drive.google.com/file/d/1-RJaYFIyk95XyLhIFlcs5D7qoPNyh3Fc/view](https://drive.google.com/file/d/1-RJaYFIyk95XyLhIFlcs5D7qoPNyh3Fc/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
