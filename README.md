@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **hammadkidwai1602@gmail.com**
 
-- 📄 Know about my experiences [**Resume**](https://drive.google.com/file/d/1-RJaYFIyk95XyLhIFlcs5D7qoPNyh3Fc/view)
+- 📄 Know about my experiences [**Resume**](https://drive.google.com/file/d/1wTfTILeIlSDjBIuxvzQ6LIJUl2mF5Zl7/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
